@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Darkgobbo1337
+- 👀 I’m interested in Tabletop and Roguelikes and honestly more but too much to type in this
+- 🌱 I’m currently learning how to work on ToME add-ons and code
+- 💞️ I’m looking to collaborate on anything that sounds cool
+- 📫 How to reach me Darkgobbo@gmail.com or Orthos#8036 on Discord
